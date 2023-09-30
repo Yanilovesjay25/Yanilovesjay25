@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Yanilovesjay25
-- 👀 I’m interested in ..
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 👀 I’m interested in volleyball and reading poems
+- 🌱 I’m currently learning korean language
+- 💞️ I’m inloved with someone right now named jay
+- 📫 How to reach me? just dm me on Instagram.
 
 <!---
 Yanilovesjay25/Yanilovesjay25 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
